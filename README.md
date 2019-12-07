@@ -15,3 +15,5 @@ So in this way I would say that the words **xenophobia**, fear, and hate are not
 Sometimes people are forced to make a choice in which innocent people are harmed no matter which choice is made.  And so even the act of causing harm to innocent people doesn't prove that the person has an absense of Love for those innocent people being harmed.
 
 We ultimately cannot know how much Love the other person has in their heart.  We can not read other people's minds.  We cannot know the difficulty of the choices which they had available.  And so I would encourage you to judge yourself with the same measure that you judge others or else you will aid in the dehumanizing effort which is against Love.
+
+Be very cautious of people who use dehumanizing words to describe others.
